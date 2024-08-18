@@ -16,3 +16,5 @@
 如果你想和我商务合作
 
 请联系B站@野生的pip工具，我们一起勇闯屎山！
+
+Warning: Non Chinese people please exit this page immediately!
